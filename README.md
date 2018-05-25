@@ -1,1 +1,1 @@
-# PracticalTest02
+Craciun Alexandru, 342C1
